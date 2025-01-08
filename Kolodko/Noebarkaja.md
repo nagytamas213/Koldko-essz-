@@ -1,0 +1,8 @@
+Kolodko Mihály Noé bárkája miniszobra egy újabb példája a művész szimbolikus és játékos alkotói stílusának. Az aprócska szobor Noé legendás bárkáját ábrázolja, amely az emberiség egyik legismertebb mitikus történetére, az özönvízre utal. Az alkotás egyszerre idézi meg a remény, az újrakezdés és a megmenekülés univerzális üzenetét, miközben humoros, kedves formájával mosolyt csal az arra járók arcára.
+
+A bárka aprólékos kidolgozottsága és miniatűr állatformái arra ösztönöznek, hogy közelebbről is szemügyre vegyük a művet, amely Kolodko szokásához híven rejtett üzeneteket és részleteket hordozhat. A szobor helyszíne szintén gondosan megválasztott: olyan városi környezetben helyezkedik el, amely különleges kontextust ad az alkotásnak, például vízhez közeli helyen, hogy erősítse a történethez való kapcsolatot.
+
+A Noé bárkája szobor egyszerre hívja fel a figyelmet a közösség, a természet és az emberiség összefonódására, miközben könnyed, humoros formában emlékeztet a legendák és mítoszok örök érvényű tanulságaira. Kolodko művészete itt is abban rejlik, hogy grandiózus témákat hoz elérhető közelségbe apró, szellemes alkotásokkal.
+
+Dunakorzó
+A Noé bárkája szobra közelében található a Duna partján elhelyezkedő Dunakorzó, amely Budapest egyik legszebb sétálóhelyszíne. A Duna folyóra néző sétány remek hely a kikapcsolódásra, kulturális eseményekre és lenyűgöző városi panorámákra. A víz közelsége tökéletes kontextust ad az alkotás témájának és hangulatának.

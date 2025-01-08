@@ -1,0 +1,6 @@
+Kolodko Mihály munkásságának egyik emblematikus darabja a Sztálin csizma, amely finom iróniával és történelmi reflexióval mutat rá a múlt árnyékaira. A miniatűr szobor Budapest egyik közterén található, és egy apró, üres csizmát ábrázol, amely a Sztálin-szobor maradványaira utal. Az 1956-os forradalom során a hatalmas Sztálin-szobrot ledöntötték, de az alapzatán maradt csizma jelképévé vált a diktatúra elleni lázadásnak. Kolodko szobrával ezt a történelmi pillanatot idézi meg, miközben játékosságával elgondolkodtató párbeszédet nyit a múltról.
+
+A Sztálin csizma nemcsak emlékeztet, hanem teret enged az értelmezés szabadságának is, amely a művész apró, szellemes alkotásainak egyik legnagyobb ereje. Az egyszerű forma mögött mély történelmi jelentések rejlenek, és Kolodko szobra a múlt és a jelen összekapcsolásának egyik kreatív példája.
+
+Műegyetem tér
+A Sztálin csizma szobra közelében található a Műegyetem tér, Budapest történelmi és kulturális központjának egyik fontos helyszíne. Ez a tér szervesen kapcsolódik az 1956-os forradalomhoz, valamint a város műszaki és egyetemi szellemiségéhez. A környéken számos történelmi épület és emlékmű található, amelyek tovább mélyítik a szobor kulturális és történelmi jelentőségét

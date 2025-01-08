@@ -1,0 +1,6 @@
+Kolodko Mihály Holdjáró című miniszobra ismét a művész szimbolikus és játékos stílusát tükrözi, ezúttal a tudományos felfedezések és az űrkutatás iránti tisztelet jegyében. A miniszobor egy apró holdjárót ábrázol, amely emléket állít az emberiség hatalmas lépéseinek az ismeretlen felfedezésében. A szobor helyszíne – ahogy Kolodko alkotásainál megszokott – szintén különös jelentőséggel bír, gyakran olyan helyen tűnik fel, amely párbeszédet nyit a városi környezet és az univerzum határainak témája között.
+
+A Holdjáró nemcsak technikai szimbólum, hanem finom utalás az emberi kíváncsiságra, a felfedezés iránti vágyra is. Az alkotás játékos részleteivel – például a járgány bájosan egyszerű, mégis ismerős formájával – közelebb hozza a nézőhöz az űrkutatás monumentalitását. Kolodko miniszobraihoz híven, itt is ötvözi a múlt és a jelen témáit: az emberiség nagy álmait apró, humoros és szerethető formában teszi érthetővé és élvezhetővé mindenki számára.
+
+Várkert Bazár
+A Holdjáró szobra közelében található a Várkert Bazár, Budapest egyik legszebb és leghangulatosabb kulturális helyszíne. A történelmi épületegyüttes lenyűgöző panorámával és elegáns kialakítással várja a látogatókat. Kiállítások, kávézók és művészeti programok teszik ezt a helyszínt igazán különlegessé.

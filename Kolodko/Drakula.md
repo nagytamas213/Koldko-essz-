@@ -1,0 +1,6 @@
+Kolodko Mihály Városligetben található Drakula-szobra egy újabb zseniális példája a művész játékos és elgondolkodtató miniatúráinak. Az apró alkotás Vlad Tepes, azaz Drakula gróf figuráját jeleníti meg, utalva a történelmi személyiség és a popkultúra mítosza közötti összefonódásra. A szobor a Városliget egyik csendes zugában bújik meg, és éppúgy lehet találkozási pont a helyiek számára, mint egyedi látványosság a turistáknak.
+
+Kolodko itt is az apró részletek erejével dolgozik: a figura kicsiny, mégis kifejező, egyszerre sejtelmes és humoros. A szobor helyszíne sem véletlen, hiszen a Városliget titokzatos hangulata tökéletes hátteret nyújt Drakula legendájának. Ez az alkotás nemcsak emléket állít a történelmi és irodalmi ihletésű alaknak, hanem finoman megidézi a múlt és a modern kor találkozását, miközben mosolyt csal az arra járók arcára.
+
+Hősök tere
+A szobor közelében található a híres Hősök tere, Budapest egyik legimpozánsabb nevezetessége. A tér központjában a Millenniumi Emlékmű áll, amely Magyarország történelmi vezetőinek szobraival tiszteleg. A tér környéke népszerű a turisták és a helyiek körében, kiváló fotóhelyszín.
